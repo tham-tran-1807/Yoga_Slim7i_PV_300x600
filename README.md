@@ -1,0 +1,2 @@
+# Yoga_Slim7i_PV_300x600
+Yoga_Slim7i_PV_300x600
